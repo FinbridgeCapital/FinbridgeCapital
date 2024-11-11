@@ -6,7 +6,7 @@ Trading on financial markets attracts many people who want to increase their inc
 To succeed in the stock market, the first thing to do is to make sure that the personal broker is legit. Finbridge Capital is a licensed and regulated company that was registered in the UK in June 2024. Traders trust it and are confident that the broker operates within the legal framework and complies with the rules of international economic cooperation. In addition, the company is often mentioned on thematic resources and forums, where practicing traders share their impressions and opinions. You can read reviews on such popular resources as:
 * [Blogspot](https://finbridgecapital.blogspot.com/2024/11/finbridge-capital-interactive-trading.html);
 * [Medium](https://medium.com/@FinbridgeCapital/finbridge-capital-reviews-and-detailed-overview-of-the-interactive-platform-for-earnings-feee2d5a2209);
-* [Teletype](https://teletype.in/@finbridgecapital/MuttyetrTW_);
+* [Teletype](https://teletype.in/@finbridgecapital/SLzMKuQrjku);
 * [HackMD](https://hackmd.io/f2GKxICPQr62XDi2qBVgQw);
 * LinkedIN.
 
